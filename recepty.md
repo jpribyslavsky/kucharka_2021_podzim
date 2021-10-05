@@ -50,7 +50,6 @@ Dobrú chuť prajem.
 _Autor: Petra Kubíková_
 
 ---
-# GIT kuchařka kurzu DA testování
 
 ## Carpaccio z pečené řepy s granátovým jablkem a citronovým dresinkem
 ### Suroviny na carpaccio
