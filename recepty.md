@@ -76,3 +76,30 @@ _Autor: Petra Kubíková_
 _Autor: Olga Pavlikova_
 
 ---
+
+## Posilující kakao
+
+### Suroviny
+* 1/2 tabulky vysokoprocentní čokolády (může být s chilli)
+* 2 dcl horké vody
+* 2 vrchovaté lžíce holandského kakaa
+* 1 lžíce vanilkového cukru nebo cukr s několika kapkami vanilkového extraktu
+* špetka zahřívacího koření dle chuti (např. roztlučený sušený zázvor, kardamon, skořice, hřebíček, pepř)
+
+
+### Postup přípravy
+1. Do hrnce dáme rozlámanou čokoládu.
+2. Zalijeme horkou vodou.
+3. Přisypeme kakao a řádně rozmícháme.
+4. Přidáme vanilkový cukr. (Lepší než kupovat malé sáčky vanilkového nebo vanilinového cukru je mít připravený domácí vanilkový cukr. Stačí nasypat do uzavíratelné dózy cukr s rozkrojeným vanilkovým luskem. Vydrží dlouho, je vždy k dispozici a stačí čas od času dosypat cukr, případně dodat nový lusk).
+5. Nasypeme vybrané roztlučené koření.
+6. Krátce povaříme do požadované konzistence.
+
+
+Popíjíme v klidu zabaleni do měkké deky, pouštíme všechny starosti pryč a užíváme si chvilku pro sebe.
+
+
+
+_Autor: Kristýna Hrdinová_
+
+---
