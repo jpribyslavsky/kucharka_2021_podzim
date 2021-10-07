@@ -103,5 +103,32 @@ Popíjíme v klidu zabaleni do měkké deky, pouštíme všechny starosti pryč 
 _Autor: Kristýna Hrdinová_
 
 ---
-ŠPEKÁČKY NA PIVĚ
-lbizova
+
+## Špekáčky na pivě
+
+### Suroviny
+* 8 špekáčků
+* 1 cibule
+* 2 feferonky
+* 4 kyselé okurky
+* 4 stroužky česneku
+* 1/2 láhve kečupu
+* 1/2 l černého piva
+* sladká paprika
+* mletý pepř
+* sůl
+
+### Postup přípravy
+1. Každý špekáček podélně 3x nařízneme. 
+1. Okurky a česnek rozpůlíme, 
+1. Feferonky nakrájíme na 4 dílky a cibuli na 8 kousků. 
+1. Do zářezů každého špekáčku vsuneme po jednom kousku od každé suroviny, 
+1. opepříme a posypeme paprikou.
+1. Naskládáme do pekáčku, 
+1. zalijeme směsí kečupu a piva. 
+1. Pečeme, až se vytvoří hustá omáčka (cca 1 hodinu). 
+1. Potom ochutnáme a dosolíme.
+
+_Autor: Lucie Bízová_
+
+---
