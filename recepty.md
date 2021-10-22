@@ -163,3 +163,32 @@ Dobrou chuť.
 _Autor: Svatava Valášková_
 
 ---
+## Švédský tvarohový koláč
+
+### Suroviny
+#### Suchá směs
+* 3 hrnky polohrubé mouky
+* 1 hrnek cukru krupice
+* 1 prášek do pečiva
+
+#### Polořídká náplň
+* 3 měkké tvarohy
+* 3 celá vejce
+* 1 hrnek cukru krupice
+* 1/2 l mléka
+* citrónová šťáva
+
+* 2 hrsti rozinek (až na plech)
+* máslo
+
+### Postup přípravy
+1. Vezmeme si hluboký velký plech a vymažeme jej máslem.
+2. Zamícháme suchou směs a odebereme z ní dva hrnky, které rovnoměrně rozsypeme na připravený plech.
+3. Smícháme polořídkou náplň, opatrně ji nalijeme na suchý základ a posypeme rozinkami. 
+4. Zasypeme zbylou suchou směsí a poklademe plátky másla.
+5. Na pár hodin na koláč zapomeneme, aby měl čas nasát tekutinu do suché směsi (jinak hrozí suchá místa po upečení).
+6. Rozpálíme troubu dle zvyklostí cca na 180°C a pečeme do zezlátnutí (cca 1/2 hodiny).
+
+_Autor: Klára Homolová_
+
+---
